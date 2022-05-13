@@ -1,2 +1,3 @@
 # PilhaAAA
-A mais comum hoje em dia 
+pilha, bateria, essas coisas
+TOMA ÁGUA É AJEITA A POSTURA AI
