@@ -1,2 +1,2 @@
 # PilhaAAA
-A mais comum hoje em dia 
+pilha, bateria, essas coisas
